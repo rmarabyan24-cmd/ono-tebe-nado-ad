@@ -1,1 +1,1 @@
-https://github.com/rmarabyan24-cmd/ono-tebe-nado
+https://github.com/rmarabyan24-cmd/ono-tebe-nado-ad
